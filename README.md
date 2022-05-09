@@ -1,0 +1,2 @@
+# totalnie_nie_rickroll
+mozesz_mi_zaufać
